@@ -6,7 +6,7 @@ Los Minititanes 2 APK is an action-packed mobile game developed by Cartoon Netwo
 
 This Android game brings the vibrant universe of "Teen Titans Go!" to life, making it perfect for young players and fans of the franchise. With its engaging gameplay and colorful graphics, Los Minititanes 2 APK promises endless entertainment.
 
-# Download Click: 👉👉 https://heyapks.com/
+# Download Click: 👉👉 https://heyapks.com/los-minititanes-2.html
 ![anhr 1](https://github.com/user-attachments/assets/82a3f6e8-e923-405f-896c-1b73242ff44e)
 
 ## Key Features of Los Minititanes 2 APK
